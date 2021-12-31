@@ -1,2 +1,15 @@
 # bemoeizorg-russian-roulette
+
 2002-2021
+
+# fentanyl
+https://en.wikipedia.org/wiki/Fentanyl
+
+# heroine
+https://nl.wikipedia.org/wiki/Hero%C3%AFne
+
+# gas chamber
+https://en.wikipedia.org/wiki/Gas_chamber
+
+# erasmusbrug
+https://nl.wikipedia.org/wiki/Erasmusbrug
